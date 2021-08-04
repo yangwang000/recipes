@@ -54,3 +54,40 @@
 
 
 
+## 茶碗蒸
+
+鸡蛋打散，加常温水，比例在1:2.5 - 1:3之间
+
+加入盐、料酒、一丢丢酱油
+
+蒸锅烧开，放入蛋液，开大火烧至蒸锅上汽，转小火，将锅盖开启一条小小缝隙，继续蒸8分钟（视蛋液多少而定）
+
+蒸熟后，盖上盖子闷5分钟Y^_^Y
+
+
+
+## Scone
+
+### Ingredients
+
+1 stick soft butter (approx 110g)
+
+½ cup (68g) plus 1tbs granulated sugar
+
+4 tsp baking powder
+
+1 egg
+
+¾ - 1 ¼ cups (96ml – 162ml) of milk
+
+1 cup (136g) raisins (if making fruit scones)
+
+1 egg yolk for glazing
+
+### Method
+
+- Set the oven to 350 degrees (approx. 180C). In a large bowl, add the flour, baking powder and sugar. Add and rub in the butter until it resembles fine breadcrumbs.
+- Make a well in the centre and add the beaten egg and about ¾ cup of milk. With a metal spoon bring the mixture together making sure you do not over mix it or you will tighten the dough. If the mixture is a little dry add more of the remaining milk gradually (You don’t want the mix too dry, or too set that it sticks to the rolling pin.)
+- Let the dough rest in freidge for about an hour.
+- Lightly dust the table with flour and roll out the dough to about 1” (2.5cm) thick. Then cut using a 2” (5cm) round cookie cutter. Place on a baking sheet about 1”(2.5cm) apart and brush the tops with the beaten egg yolk. Bake for about 15 – 20 minutes. When cooked, lift onto a wire rack to cool.
+
