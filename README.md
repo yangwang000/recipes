@@ -91,3 +91,19 @@
 - Let the dough rest in freidge for about an hour.
 - Lightly dust the table with flour and roll out the dough to about 1” (2.5cm) thick. Then cut using a 2” (5cm) round cookie cutter. Place on a baking sheet about 1”(2.5cm) apart and brush the tops with the beaten egg yolk. Bake for about 15 – 20 minutes. When cooked, lift onto a wire rack to cool.
 
+
+
+## 芹菜土豆丝
+
+土豆切丝，泡水，洗净淀粉
+
+芹菜切丝
+
+姜末、蒜末
+
+姜末、芹菜、土豆一起下锅，炒至9成熟
+
+加入蒜末、五香粉、盐、鸡精、花椒粉/油
+
+炒熟出锅
+
