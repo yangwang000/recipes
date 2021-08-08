@@ -70,6 +70,8 @@
 
 ### Ingredients
 
+3+1/4 flour
+
 1 stick soft butter (approx 110g)
 
 ½ cup (68g) plus 1tbs granulated sugar
